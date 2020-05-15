@@ -16,6 +16,6 @@
 ### Among my colleagues, I have relatively excellent records in Statistics up to master level. The best student in Mathematics and statistics in the Federal Polytechnic; one of the only two students who have (A) grade in Statistics Method and Sources II in OAU and the best student in Statistics at master level in Gyeongsang National University. 
 
 ### My vision is to be an honest leader and to be recognized internationally within my area of specialization. 
-I will work every day to acquire the skill of being an independent learner where I can achieve my fullest potential in academics and moral development. 
+### I will work every day to acquire the skill of being an independent learner where I can achieve my fullest potential in academics and moral development. 
 
 ### I am aiming at becoming someone that others seek out for the answer to their problems. I want to be authentic in my dealing with everyone.
