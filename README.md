@@ -5,7 +5,7 @@
 
 ### Living in Jinju City, South Korea.
 
-### With a long-life passion for Statistics, I developed an interest in not only Statistics but also its aided subjects such as Mathematics, Economics among the others. 
+### With a long-life passion for Statistics, I developed an interest not only in Statistics but also its aided subjects such as Mathematics, Economics among the others. 
 
 ### My personal academics milestone occurred when I emerged as the best student in Mathematics when I was in high school. 
 
